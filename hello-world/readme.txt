@@ -1,2 +1,1 @@
-hello
-氣死了
+someone like you
